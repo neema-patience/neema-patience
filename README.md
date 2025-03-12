@@ -1,4 +1,4 @@
-# Hi there, I'm Neema! 👋  
+# Hi there, I'm Patience! 👋  
 
 **`Aspiring Data Analyst | Web Developer | Tech Enthusiast`**  
 
